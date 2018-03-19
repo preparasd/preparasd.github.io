@@ -1,1 +1,1 @@
-# preparasd.github.io: Em desenvolvimento
+# preparasd.github.io
